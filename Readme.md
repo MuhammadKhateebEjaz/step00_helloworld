@@ -1,4 +1,5 @@
- Governor Sindh IT Initiative Course. Form Governor of Sindh Mr.Kamran Tessori Muhammad Kamran Khan Tessori took oath on 10th October 2022 as 34th Governor of Sindh under Article 101 of the Constitution of Islamic Republic of Pakistan.
+ Governor Sindh IT Initiative Course. Form Governor of Sindh Mr.Kamran Tessori.
+Mr.Kamran Khan Tessori took oath on 10th October 2022 as 34th Governor of Sindh under Article 101 of the Constitution of Islamic Republic of Pakistan.
  With Sir Mr.Zia Khan A beacon Of Knowledge And Innovation 
  
 
